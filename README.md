@@ -307,7 +307,7 @@ You're free to use, modify, and distribute this project for personal and commerc
 
 - 🔗 [GitHub](https://github.com/mianhasssan)
 - 🔗 [LinkedIn](https://linkedin.com/in/mianmuhammadhassan322)
-- 📧 [Email](mailto:your-email@example.com)
+- 📧 [Email](mailto:mmh427726@gmail.com)
 
 ---
 
